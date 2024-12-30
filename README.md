@@ -1,6 +1,6 @@
 # 虫洞云机场官网地址
 
-最新地址：[cd88.de](https://cd.jjjxgc.com/#/register?code=zA65cMCS)
+最新地址：[cd.jjjxgc.com](https://cd.jjjxgc.com/#/register?code=er3smcoE)
 
 ## 虫洞云机场简介
 
